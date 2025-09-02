@@ -7,4 +7,8 @@
 
 ![](https://komarev.com/ghpvc/?username=butterflyvirus&style=flat&color=b4665c&label=SURVIVORS)     [i.](https://www.tumblr.com/blog/br4ineaterz) [ii.](https://butterfly-virus.straw.page) [iii.](https://slaughteredsociety.atabook.org/)
 
+⋆｡°✩ latest gimmick shoutout *!* <3 
+
+![](https://files.strawcdn.com/canvas/oSyvTMJnbbdTQkSqSggR.png#100x50)
+
 `. . . Endure and Survive.`
