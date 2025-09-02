@@ -5,7 +5,7 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=kjh8e6qxk29779vqmv9d2a934&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=b4665c&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) 
 
-![](https://komarev.com/ghpvc/?username=butterflyvirus&style=flat&color=b4665c&label=SURVIVORS)     [i.](https://www.tumblr.com/blog/br4ineaterz) [ii.](https://butterfly-virus.straw.page) [iii.](https://slaughteredsociety.atabook.org/)
+![](https://komarev.com/ghpvc/?username=butterflyvirus&style=flat&color=b4665c&label=SURVIVORS)     [i.](https://www.tumblr.com/blog/br4ineaterz) [ii.](https://butterfly-virus.straw.page) [iii.](https://rentry.co/butterflyvirus)
 
 ⋆｡°✩ latest gimmick shoutout *!* <3 
 
