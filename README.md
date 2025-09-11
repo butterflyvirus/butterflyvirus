@@ -9,6 +9,6 @@
 
 ⋆｡°✩ latest gimmick shoutout *!* <3 
 
-![](https://files.strawcdn.com/canvas/oSyvTMJnbbdTQkSqSggR.png#100x50)
+![](https://files.strawcdn.com/canvas/bfnMemDtSrdYhDHQfcqj.png#100x50)
 
 `. . . Endure and Survive.`
