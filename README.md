@@ -8,8 +8,6 @@
 
 ![](https://komarev.com/ghpvc/?username=butterflyvirus&style=flat&color=894b56&label=PROXIES)     [i.](https://www.tumblr.com/blog/br4ineaterz) [ii.](https://butterfly-virus.straw.page) [iii.](https://rentry.co/butterflyvirus)
 
-⋆｡°✩ latest gimmick shoutout *!* <3 
-
-![](https://files.strawcdn.com/canvas/bfnMemDtSrdYhDHQfcqj.png#100x50)
+![](https://64.media.tumblr.com/21ee7a89ca098b36b9addb48f19cc1f8/1c07ae39109f8794-63/s250x400/924f6e57232326dab9af134cec4176e0fe254e22.pnj) ![](https://64.media.tumblr.com/9323450f987dccd6f98f9b4f5b0a5601/1c07ae39109f8794-d9/s250x400/e5b29413bb936f15d4e970db5e6c669242add595.pnj) ![](https://64.media.tumblr.com/671a285d90303bc969b58ff29c7ae60a/1c07ae39109f8794-16/s250x400/aabb0f892a3acf5026a572a2c5529469ad717984.pnj)
 
 > . . . Are you both of them?
