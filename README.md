@@ -1,13 +1,17 @@
-> Who are the liars? Are you one of them?
+![](https://komarev.com/ghpvc/?username=butterflyvirus&style=flat&color=8f9799&label=infected.)
 
-![](https://i.ibb.co/k2q0T7s4/tumblr-fd3d627b90c283bd46f03b16df263507-dc73f281-2048-30.jpg)
+![](https://64.media.tumblr.com/eabe4cf99f200adec7db7ee065197ebf/0208114b627c0761-33/s1280x1920/1dc47b8b8c607c29ed8a5d45b47f6b3f002be409.pnj)
 
-. . . usually found in the bandom area , near cafe , or with friends -- feel free to stop & sit with us *!!* ⋆ ★
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀*ellie*⠀⠀››⠀⠀**ains**ley
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=kjh8e6qxk29779vqmv9d2a934&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&bar_color=894b56&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀she⠀ *her⠀ hers*⠀⠀›⠀⠀**9**teen
 
-![](https://komarev.com/ghpvc/?username=butterflyvirus&style=flat&color=894b56&label=PROXIES)     [i.](https://www.tumblr.com/blog/br4ineaterz) [ii.](https://butterfly-virus.straw.page) [iii.](https://rentry.co/butterflyvirus)
+![](https://i.ibb.co/3mWM9kfX/tumblr-a383f2affcc5886283224c52c18e1aaa-0f2ba3a0-2048-4-27.png)
 
-![](https://64.media.tumblr.com/21ee7a89ca098b36b9addb48f19cc1f8/1c07ae39109f8794-63/s250x400/924f6e57232326dab9af134cec4176e0fe254e22.pnj) ![](https://64.media.tumblr.com/9323450f987dccd6f98f9b4f5b0a5601/1c07ae39109f8794-d9/s250x400/e5b29413bb936f15d4e970db5e6c669242add595.pnj) ![https://github.com/mikeonwheels](https://64.media.tumblr.com/671a285d90303bc969b58ff29c7ae60a/1c07ae39109f8794-16/s250x400/aabb0f892a3acf5026a572a2c5529469ad717984.pnj)
+⠀⠀⠀⠀⠀⠀⠀usually in the *bandom* area, **near cafe**, or with friends
 
-> . . . Are you both of them?
+⠀⠀⠀⠀⠀⠀⠀⠀⠀c*h *heavily* encouraged⠀⠀›⠀⠀**w2i**, usually offtab
+
+![](https://i.ibb.co/yF24ZNw0/tumblr-53276f9078b6cfc5c8047ae6bae0a8a2-919da906-2048-1-27.png)
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[strawp](strawp).⠀⠀›⠀⠀[tumblr](https://www.tumblr.com/br4ineaterz).⠀⠀›⠀⠀[ata](https://slaughteredsociety.atabook.org/).
